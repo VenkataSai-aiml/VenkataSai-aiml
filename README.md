@@ -94,7 +94,7 @@
 
 ## 📫 Let's Connect
 
-- 📧 Email: [venakt71429@gmail.com](mailto:venakt71429@gmail.com)
+- 📧 Email: [venkat71429@gmail.com](mailto:venakt71429@gmail.com)
 - 💼 LinkedIn: [Add your link here]
 
 ---
